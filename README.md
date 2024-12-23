@@ -70,3 +70,4 @@
 ![Снимок экрана 2024-12-23 114342](https://github.com/user-attachments/assets/40de10de-f404-490e-ac95-7ff71142be09)
 ![Снимок экрана 2024-12-23 114252](https://github.com/user-attachments/assets/25a50c85-9627-40ec-955c-2057ff8b4cc0)
 
+![image](https://github.com/user-attachments/assets/ab04d957-0734-49a0-8496-99d2962f2609)
